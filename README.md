@@ -1,1 +1,0 @@
-# yekara.github.io
